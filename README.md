@@ -83,7 +83,7 @@ Goals for 2026
 
 Connect With Me
 
-* LinkedIn: []
+* LinkedIn: [www.linkedin.com/in/kyle-jones-ab362768]
 
 
 ⸻
