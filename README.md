@@ -83,8 +83,8 @@ Goals for 2026
 
 Connect With Me
 
-* LinkedIn: [Add Your LinkedIn URL]
-* GitHub: [Add Your GitHub URL]
+* LinkedIn: []
+
 
 ⸻
 
